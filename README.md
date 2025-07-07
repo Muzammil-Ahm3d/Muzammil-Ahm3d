@@ -1,6 +1,6 @@
 ## 👋 Hello there!
 
-I'm Muzammil Ahmed, a passionate and motivated Sri Indu College of Engineering and Technology student studying CSD[computer science & data science] 2nd year
+I'm Muzammil Ahmed, a passionate and motivated Sri Indu College of Engineering and Technology student studying CSD[computer science & data science] 4th year
 
 ### 💻 What I'm Into:
 
